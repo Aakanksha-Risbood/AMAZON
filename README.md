@@ -1,2 +1,0 @@
-# AMAZON
-Author-Aakanksha
